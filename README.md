@@ -1,4 +1,4 @@
-# [paulo872] <img src="https://images.gamebanana.com/img/ico/sprays/ds.gif" width="70px">
+# paulo872 <img src="https://images.gamebanana.com/img/ico/sprays/ds.gif" width="70px">
 
 Eu sou <strong>paulo ferreira</strong>, <strong>tenho 15 anos atualmente tenho 1,63 de altura tomara que eu possa crescer mais   </strong> 🐢 
 
