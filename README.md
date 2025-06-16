@@ -4,4 +4,4 @@ meu nome <strong>paulo ferreira</strong>, <strong>tenho 15 anos atualmente tenho
 
 - 📈 Atualmente estou aprendendo: <strong>javascript</strong> 
 - 💬 Pergunte-me sobre: <strong>gosto de montar cubo magico,joga freefire e dormi muito </strong>
-- 🌚 Nós podemos falar em: <strong>portugues por que ingles ta meio peba</strong>
+- 🌚 Nós podemos falar em: <strong>portugues</strong>
